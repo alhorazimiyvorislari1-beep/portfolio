@@ -1,4 +1,4 @@
-# Salom! Men Ali 👋
+# Salom! Men Anvarjon 👋
  
 Farg‘ona, 8-sinf. Dasturlashni o‘rganyapman.
  
